@@ -1,3 +1,4 @@
+# Game is available NOW on [scratch.mit.edu](https://scratch.mit.edu/projects/803866988)
 
 # 中文
 ## TapDrop
